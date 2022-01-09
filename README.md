@@ -2,10 +2,10 @@
 
 ## I’m a Husband, Father, and Web Developer!
 - :briefcase: I’m currently working for PT Trans Digital Media (DetikNetwork)
-- 👀 I’m interested in Philosophy, Associative Football
+- 👀 I’m interested in Philosophy, Associative Football, and of course Programming
 - 🌱 I’m currently learning everything
+- :muscle: Need to Gain Weight, but Health is a Must!
 - :dart: 2022 Goals : Contribute more to Open Source projects
-- 💞️ I’m looking to collaborate on ...
 
 ### Connect with me:
 [<img align="left" alt="Kholis' Website" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />][website]
@@ -31,6 +31,10 @@
 
 <br />
 <br />
+
+# Blog posts
+<!-- BLOG-POST-LIST:START -->
+<!-- BLOG-POST-LIST:END -->
 
 [website]: https://kholiscahyoko.my.id
 [facebook]: https://www.facebook.com/vikingcurvasud
