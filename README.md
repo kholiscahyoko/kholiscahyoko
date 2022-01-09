@@ -34,6 +34,8 @@
 
 # Blog posts
 <!-- BLOG-POST-LIST:START -->
+- [Dunia Pasca Manusia](https://kholiscahyoko.my.id/dunia-pasca-manusia/)
+- [Hello world!](https://kholiscahyoko.my.id/hello-world/)
 <!-- BLOG-POST-LIST:END -->
 
 [website]: https://kholiscahyoko.my.id
