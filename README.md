@@ -34,6 +34,7 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
+- [Kode Referral Bizhare](https://kholiscahyoko.my.id/kode-referral-bizhare/)
 - [Dunia Pasca Manusia](https://kholiscahyoko.my.id/dunia-pasca-manusia/)
 - [Hello world!](https://kholiscahyoko.my.id/hello-world/)
 <!-- BLOG-POST-LIST:END -->
