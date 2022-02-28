@@ -34,6 +34,8 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
+- [SBN 101 Series: SBN Konvensional dan Syariah, Apa Bedanya?](https://kholiscahyoko.my.id/sbn-101-series-sbn-konvensional-dan-syariah-apa-bedanya/)
+- [Kode Referral Bibit](https://kholiscahyoko.my.id/kode-referral-bibit/)
 - [Kode Referral Bizhare](https://kholiscahyoko.my.id/kode-referral-bizhare/)
 - [Dunia Pasca Manusia](https://kholiscahyoko.my.id/dunia-pasca-manusia/)
 - [Hello world!](https://kholiscahyoko.my.id/hello-world/)
