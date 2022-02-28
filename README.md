@@ -34,11 +34,11 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
+- [Dibuka : Sukuk Mudharabah Proyek Budidaya Ikan Nila Desa Pancawangi](https://kholiscahyoko.my.id/dibuka-sukuk-mudharabah-proyek-budidaya-ikan-nila-desa-pancawangi/)
+- [7 Keuntungan Investasi Sukuk Ritel SR016](https://kholiscahyoko.my.id/7-keuntungan-investasi-sukuk-ritel-sr016/)
 - [SBN 101 Series: SBN Konvensional dan Syariah, Apa Bedanya?](https://kholiscahyoko.my.id/sbn-101-series-sbn-konvensional-dan-syariah-apa-bedanya/)
 - [Kode Referral Bibit](https://kholiscahyoko.my.id/kode-referral-bibit/)
 - [Kode Referral Bizhare](https://kholiscahyoko.my.id/kode-referral-bizhare/)
-- [Dunia Pasca Manusia](https://kholiscahyoko.my.id/dunia-pasca-manusia/)
-- [Hello world!](https://kholiscahyoko.my.id/hello-world/)
 <!-- BLOG-POST-LIST:END -->
 
 ---
