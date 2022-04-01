@@ -35,7 +35,7 @@
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
 - [Dari A hingga Z Soal Financial Freedom](https://kholiscahyoko.my.id/dari-a-hingga-z-soal-financial-freedom/)
-- [Kode Referral Kredivo, Diskon 150 Ribu](https://kholiscahyoko.my.id/kode-referral-kredivo/)
+- [Kode Referral Kredivo Terbaru, Bonus Diskon 150 Ribu, Limit hingga 30 Juta](https://kholiscahyoko.my.id/kode-referral-kredivo/)
 - [Dibuka : Sukuk Mudharabah Proyek Budidaya Ikan Nila Desa Pancawangi](https://kholiscahyoko.my.id/dibuka-sukuk-mudharabah-proyek-budidaya-ikan-nila-desa-pancawangi/)
 - [7 Keuntungan Investasi Sukuk Ritel SR016](https://kholiscahyoko.my.id/7-keuntungan-investasi-sukuk-ritel-sr016/)
 - [SBN 101 Series: SBN Konvensional dan Syariah, Apa Bedanya?](https://kholiscahyoko.my.id/sbn-101-series-sbn-konvensional-dan-syariah-apa-bedanya/)
