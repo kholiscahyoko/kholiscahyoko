@@ -36,7 +36,7 @@
 <!-- BLOG-POST-LIST:START -->
 - [Kiat untuk Capai Financial Freedom](https://kholiscahyoko.my.id/kiat-untuk-capai-financial-freedom/)
 - [Dari A hingga Z Soal Financial Freedom](https://kholiscahyoko.my.id/dari-a-hingga-z-soal-financial-freedom/)
-- [Kode Referral Kredivo Terbaru, Bonus Diskon 150 Ribu, Limit hingga 30 Juta](https://kholiscahyoko.my.id/kode-referral-kredivo/)
+- [Kode Referal Kredivo Terbaru, Bonus Diskon 150 Ribu, Limit hingga 30 Juta](https://kholiscahyoko.my.id/kode-referal-kredivo/)
 - [Dibuka : Sukuk Mudharabah Proyek Budidaya Ikan Nila Desa Pancawangi](https://kholiscahyoko.my.id/dibuka-sukuk-mudharabah-proyek-budidaya-ikan-nila-desa-pancawangi/)
 - [SR016 : 7 Keuntungan Investasi Sukuk Ritel seri SR016](https://kholiscahyoko.my.id/7-keuntungan-investasi-sukuk-ritel-sr016/)
 <!-- BLOG-POST-LIST:END -->
