@@ -34,11 +34,11 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
+- [Kode Referral Bibit Terbaru, Bonus Cashback 25 Ribu](https://kholiscahyoko.my.id/kode-referral-bibit/)
 - [Kode Referal Kredivo Terbaru, Bonus Diskon 150 Ribu, Limit hingga 30 Juta](https://kholiscahyoko.my.id/kode-referal-kredivo/)
 - [Mafia City Invitation ID, Get Numerous Reward](https://kholiscahyoko.my.id/mafia-city-invitation-id/)
 - [Top Eleven Referral Code, Get Free Tokens](https://kholiscahyoko.my.id/top-eleven-referral-code/)
 - [Kode Referral Bizhare Terbaru, Bonus Diskon Biaya 50 persen](https://kholiscahyoko.my.id/kode-referral-bizhare/)
-- [Kiat untuk Capai Financial Freedom](https://kholiscahyoko.my.id/kiat-untuk-capai-financial-freedom/)
 <!-- BLOG-POST-LIST:END -->
 
 ---
