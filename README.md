@@ -34,7 +34,7 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
-- [Pahami Alasan Market dan Investasi Fluktuatif Hingga Cara Menghadapinya](https://kholiscahyoko.my.id/pahami-alasan-market-dan-investasi-fluktuatif-hingga-cara-menghadapinya/)
+- [Pahami Alasan Market dan Investasi Fluktuatif Hingga Cara Menghadapinya](https://kholiscahyoko.my.id/alasan-market-dan-investasi-fluktuatif/)
 - [Fishing Clash Referral Code 2022, Collect Your Reward !](https://kholiscahyoko.my.id/fishing-clash-referral-code/)
 - [Kode Referral PLN Mobile 2022 Terbaru, Bonus Reward](https://kholiscahyoko.my.id/kode-referral-pln-mobile/)
 - [Kode Referral Bibit Terbaru, Bonus Cashback 25 Ribu](https://kholiscahyoko.my.id/kode-referral-bibit/)
