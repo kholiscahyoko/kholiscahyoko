@@ -34,11 +34,11 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
-- [Kode Referral Kredivo Terbaru, Bonus Diskon 150 Ribu, Limit hingga 30 Juta](https://kholiscahyoko.my.id/kode-referral-kredivo/)
+- [Kode Referral Kredivo Terbaru : KHOL8GYM. Bonus 150 Ribu, Limit hingga 30 Juta](https://kholiscahyoko.my.id/kode-referral-kredivo/)
 - [Pahami Alasan Market dan Investasi Fluktuatif Hingga Cara Menghadapinya](https://kholiscahyoko.my.id/alasan-market-dan-investasi-fluktuatif/)
 - [Fishing Clash Referral Code 2022, Collect Your Reward !](https://kholiscahyoko.my.id/fishing-clash-referral-code/)
 - [Kode Referral PLN Mobile 2022 Terbaru, Bonus Reward](https://kholiscahyoko.my.id/kode-referral-pln-mobile/)
-- [Kode Referral Bibit Terbaru, Bonus Cashback 25 Ribu](https://kholiscahyoko.my.id/kode-referral-bibit/)
+- [Kode Referral Bibit Terbaru: BIBITIDREF, Bonus Cashback 25 Ribu](https://kholiscahyoko.my.id/kode-referral-bibit/)
 <!-- BLOG-POST-LIST:END -->
 
 ---
