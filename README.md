@@ -34,11 +34,11 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
+- [Token PLN Murah, harga 50 Ribu bayar cuma 30 Ribuan](https://kholiscahyoko.my.id/token-pln-murah/)
 - [Open Investment Sour Sally Citywalk Sudirman Jakarta Sudah Dibuka!!](https://kholiscahyoko.my.id/open-investment-sour-sally-citywalk-sudirman-jakarta-sudah-dibuka/)
 - [Kode Referral Kredivo Terbaru : KHOL8GYM. Bonus 150 Ribu, Limit hingga 30 Juta](https://kholiscahyoko.my.id/kode-referral-kredivo/)
 - [Pahami Alasan Market dan Investasi Fluktuatif Hingga Cara Menghadapinya](https://kholiscahyoko.my.id/alasan-market-dan-investasi-fluktuatif/)
 - [Fishing Clash Referral Code 2022, Collect Your Reward !](https://kholiscahyoko.my.id/fishing-clash-referral-code/)
-- [Kode Referral PLN Mobile 2022 Terbaru, Bonus Reward](https://kholiscahyoko.my.id/kode-referral-pln-mobile/)
 <!-- BLOG-POST-LIST:END -->
 
 ---
