@@ -34,7 +34,7 @@
 
 ### Blog posts
 <!-- BLOG-POST-LIST:START -->
-- [10 Tempat Wisata Menarik di Jakarta untuk Liburan Anda](https://kholiscahyoko.my.id/10-tempat-wisata-menarik-di-jakarta-untuk-liburan-anda/)
+- [10 Tempat Wisata Menarik di Jakarta untuk Liburan Anda](https://kholiscahyoko.my.id/10-tempat-wisata-menarik-di-jakarta/)
 - [Token PLN Murah, harga 50 Ribu bayar cuma 30 Ribuan](https://kholiscahyoko.my.id/token-pln-murah/)
 - [Open Investment Sour Sally Citywalk Sudirman Jakarta Sudah Dibuka!!](https://kholiscahyoko.my.id/open-investment-sour-sally-citywalk-sudirman-jakarta-sudah-dibuka/)
 - [Kode Referral Kredivo Terbaru : KHOL8GYM. Bonus 250 Ribu, Limit 30 Juta](https://kholiscahyoko.my.id/kode-referral-kredivo/)
