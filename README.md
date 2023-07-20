@@ -1,6 +1,6 @@
 ### Hi there, I’m Kholis Cahyoko
 
-## I’m a Husband, Father, and Web Developer!
+## Hardly Web Developer Wannabe !
 - :briefcase: I’m currently working for PT Trans Digital Media (DetikNetwork)
 - 👀 I’m interested in Philosophy, Associative Football, and of course Programming
 - 🌱 I’m currently learning everything
